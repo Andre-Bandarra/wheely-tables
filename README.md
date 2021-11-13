@@ -22,8 +22,4 @@ Having used these for 3 years now, having wheels really works for me, the type o
 | Long Braces | 17 | 70 | 1400 | 4 |
 | Wheels | 70 | 130 | 70 | 4 |
 
-[andrebandarra.com](https://andrebandarra.com/)   
-
-[Youtube](https://www.youtube.com/channel/UCzYf1cmKwDMSiII9SSp6IJw) 
-
-[Patreon](https://www.patreon.com/bandarra) 
+[andrebandarra.com](https://andrebandarra.com/) --- [Youtube](https://www.youtube.com/channel/UCzYf1cmKwDMSiII9SSp6IJw) --- [Patreon](https://www.patreon.com/bandarra) 
